@@ -2,6 +2,14 @@
 
 
 
+![1](1.png)
+
+![1](2.png)
+
+![2](/Users/atlas/Desktop/2.png)
+
+![3](3.png)
+
 
 
 
